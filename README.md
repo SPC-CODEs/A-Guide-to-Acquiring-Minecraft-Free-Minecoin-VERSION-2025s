@@ -1,4 +1,7 @@
 # A-Guide-to-Acquiring-Minecraft-Free-Minecoin-VERSION-2025s
+
+<h2><a href="https://allresources.xyz/mcrafts.html/">Get Link</a></h2>
+
 <div class="flex max-w-full flex-col flex-grow">
 <div class="min-h-8 text-message flex w-full flex-col items-end gap-2 whitespace-normal break-words text-start [.text-message+&amp;]:mt-5" dir="auto" data-message-author-role="assistant" data-message-id="595482e2-608a-4080-8d0a-4068aeab562e" data-message-model-slug="gpt-4o">
 <div class="flex w-full flex-col gap-1 empty:hidden first:pt-[3px]">
